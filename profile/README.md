@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-🙋‍♀️ **Who we are** - Kinsa Creative is a holistic user-centered creative consultancy specializing in service design, website and digital product design, and brand identity.
+🙋‍♀️ **Who we are** - Kinsa Creative is a holistic user-centered creative consultancy specializing in creating products, services, and processes that solve business challenges and fulfil real needs.
 
 👀 **Take a look around** - the pinned projects showcase some recent applications we are working on.  
 
